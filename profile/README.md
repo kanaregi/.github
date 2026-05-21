@@ -8,3 +8,4 @@
 * 設立日: 2023年03月
 * 公式サイト: [https://kanaregi.com](https://kanaregi.com)
 * X: [https://x.com/kanaregi_inc](https://x.com/kanaregi_inc)
+* Instagram: [https://instagram.com/kanaregi.inc](https://instagram.com/kanaregi.inc)
